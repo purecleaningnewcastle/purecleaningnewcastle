@@ -1,16 +1,15 @@
-## Hi there 👋
+# Pure Cleaning Newcastle: #1 House Cleaning & Maid Services
 
-<!--
-**purecleaningnewcastle/purecleaningnewcastle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[**Pure Cleaning Newcastle**](https://purecleaningnewcastle.com.au) is a top-rated cleaning company in Newcastle, NSW. We offer tailored house cleaning and maid services for your homes, apartments and offices.
 
-Here are some ideas to get you started:
+Reviews: **1200 reviews***
+Rating: **4.9 rating***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Email: contact@purecleaningnewcastle.com.au
+
+Phone: +61 414076980
+
+Address: 189 Hunter St, Newcastle NSW 2300 Australia
+
+Hours: Mon – Sun: 9:00 AM – 5:00 PM
+
